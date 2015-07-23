@@ -1,4 +1,4 @@
 # oathofblood
-Oath of Blood
+
 Thank you for the warm welcome. I finished my first book which I started about a year ago. It was a series book. Dream Quest Series: The Wolf Dream, it is published on Smashwords a few days ago. I'm finishing my 2nd book; this one is an dark saga. I had a dramatic change take place in my life at 60 years old that made me want to pursue a life-long dream of being a writer. I started working when I was only 8 years old, after 52 1/2 years of working, I had four heart attacks and for 4 more years I had several others, before I retired two years ago.
 I have plans to write more books and continue to write articles for large websites( I have had a few poems published). I want to learn about writing newsletters, copywriting and ghost writing. I'm also looking forward to learning and sharing with everyone.
